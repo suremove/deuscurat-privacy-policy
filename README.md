@@ -1,2 +1,2 @@
-# Bulk sms privacy policy
-This is for the sms delight
+# Deus Curat privacy policy
+This is for the Deus curat
